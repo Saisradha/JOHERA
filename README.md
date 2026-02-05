@@ -8,4 +8,4 @@ JOHERA addresses the lack of culturally rooted yet modern fashion options for yo
 
 JOHERA delivers luxury-inspired, culturally rich fashion at accessible price points, making high-end design and storytelling affordable without compromising on quality or craftsmanship.
 
-you can consider the above links for experiencing the sample website.
+you can use the above links for experiencing the sample website.
